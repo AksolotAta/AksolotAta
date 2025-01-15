@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AksolotAta
+- 👀 I’m interested in Computers and more
+- 🌱 I’m currently learning nothing :)
+- 💞️ I’m looking to collaborate on nothing :D
+- 📫 How to reach me ???
+- 😄 Pronouns: Not
+- ⚡ Fun fact: Computers and more
